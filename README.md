@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ToddAbrahamII
+- 👀 I’m interested in projects and schoolwork
+- 🌱 I’m currently pursuing a degree in Information Systems,Systems Development/Analyst
+- 📫 How to reach me tjabraham12@yahoo.com
